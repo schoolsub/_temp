@@ -10,4 +10,7 @@ https://projecthumanize.us/blog/2017/5/24/ebbie-businessman-in-atlanta-georgia
 
 
 ***
+We have moved from [blank generation](https://en.wikipedia.org/wiki/The_Blank_Generation) to `_blank` generation.
+We just click and open.
 
+***
