@@ -11,6 +11,10 @@ https://projecthumanize.us/blog/2017/5/24/ebbie-businessman-in-atlanta-georgia
 
 ***
 We have moved from [blank generation](https://en.wikipedia.org/wiki/The_Blank_Generation) to `_blank` generation.
-We just click and open.
+We click.
 
 ***
+
+"Typical academic material gives me enough to get from A to B to C when what I really want is the entire alphabet, complete with all directions for how to use it, what it is good for and most importantly, why I should care about it."
+
+http://herautism.com/her-education/autism-school-blurb/
